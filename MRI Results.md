@@ -4,6 +4,10 @@
 
 ![](spine1.jpg)
 
+![](spine2.jpg)
+
+![](spinal-column.jpg)
+
 ![](hernia1.jpg)
 
 ![](hernia2.jpg)
